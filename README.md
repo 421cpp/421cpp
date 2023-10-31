@@ -8,7 +8,7 @@
   
   Fun facts I think I play too much league of legends 💀 Seriously, I'm also a big tweaking enthusiast
 
-  If you have any questions, u can contact me on discord: 421.(Don't forget the dot!!!)
+  If you have any questions, u can contact me on discord: 421. (Don't forget the dot!!!)
  
 <h2 align="center">⚒️ Languages-Frameworks-Tools ⚒️</h2>
 <br />
